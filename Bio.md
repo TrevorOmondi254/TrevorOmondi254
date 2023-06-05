@@ -7,8 +7,10 @@
 - 📫 How to reach me
 
 whatsapp 0110584711
-email trevstan3@gmail.com 
-calls & sms 0794757318
+
+   email trevstan3@gmail.com 
+
+      📞calls and messages 0794757318
 
 <!---
 TrevorOmondi254/TrevorOmondi254 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
